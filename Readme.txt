@@ -1,2 +1,2 @@
-Thanks for downloading see!
+Thanks for cooming!
 
